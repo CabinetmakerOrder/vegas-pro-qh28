@@ -1,4 +1,4 @@
-# 
+# Novo Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com exportação 4K e suporte a plugins. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
